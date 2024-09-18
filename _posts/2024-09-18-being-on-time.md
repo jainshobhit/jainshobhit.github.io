@@ -6,9 +6,7 @@ When I began attending meetings with external stakeholders (notably, very senior
 
 Gradually, I started making an effort to be on time for these 'external' meetings to avoid embarrassment. However, I still tended to be late for internal meetings. Occasionally, I would still arrive late to external meetings. It was then that I realized this trait had become ingrained in my personality, and I needed to start being punctual in all areas of my life to be consistently punctual in even one area - external meetings, internal meetings, and personal life. Recently, I've been reflecting on this and tried to articulate why being on time is crucial in life.
 
-Here are several reasons I believe a lack of punctuality reflects poorly on an individual:
-
-Here are a few reasons I think what lack of punctuality demonstrates about someone, personally:
+Here are a few reasons I believe a lack of punctuality reflects on an individual:
 - **It suggests a lack of discipline in life** - Consistently being late indicates an inability to manage oneself effectively
 - **It indicates unreliability** - When you're late always, people learn they can't depend on you to be there when needed
 - **It shows a disregard for other people's time** - Arriving late essentially communicates that you value your time more than others
