@@ -21,5 +21,7 @@ A simple piece of unsolicited advice I'd offer to anyone is to aim to arrive at 
 
 Another effective strategy is to plan your day or week in advance. I've been doing this for the past 4-5 months and have seen positive results. Try to schedule everything in advance so you always know what you need to do. Trust me, it will significantly simplify your life.
 
+As the company grows and we increase our headcount with time, these things are going to be more important for us. As the number of people increase, it will inevitably lead to more chaos. And we can reduce a lot of this chaos & the inefficiencies by being punctual.
+
 Please look into yourself and try to identify if you are one of those? If so, now is the time to make a change.
 
